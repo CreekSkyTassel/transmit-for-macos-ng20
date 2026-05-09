@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://CreekSkyTassel.github.io/transmit-for-macos-ng20/) |
  |---------------------|----------------------:|
 
 
